@@ -1,2 +1,2 @@
 # resume
-My resume. Updated 08-30-2017.
+My resume. Most recent update is Nov. 1, 2017.
